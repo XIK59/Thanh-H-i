@@ -1,2 +1,0 @@
-# Thanh-H-i
-Normal
